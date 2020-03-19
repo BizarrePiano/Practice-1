@@ -1,3 +1,3 @@
 # Practice-1
-Ilk deyisiklik
-2ci deyisiklik
+Bu sefer daha ferqli deyisiklikj 
+Fisko Isko baxir
